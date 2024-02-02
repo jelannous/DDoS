@@ -1,5 +1,8 @@
 # :bomb: Jelan
 ## Modern Denial-Of-Service ToolKit
+#YOUTUBE : https://youtube.com/@epilogofficial3855?si=QkxOW_iad4D8xFja
+#INSTAGRAM : https://www.instagram.com/epilog_offic?igsh=bWw0cG02aGZ3OTh2
+#TELEGRAM : t.me/epilog_official (New)
 
 
 <p align="center">
